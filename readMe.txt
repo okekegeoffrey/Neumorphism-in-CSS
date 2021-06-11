@@ -1,0 +1,1 @@
+Neomorphism involves creating a feel of source of light throwing on an object....called something something reality.
